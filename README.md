@@ -1,2 +1,2 @@
 # Lypse
-> Projetando o projeto
+> Projetando o futuro
